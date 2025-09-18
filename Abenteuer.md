@@ -14,4 +14,4 @@ Schon in seinem ersten Bundesliga-Spiel gegen Bayern München schrieb er Geschic
 „TOOOOR! GOALGUN IST KEIN MENSCH, ER IST PURE GALAXIE!“
 Seitdem kennt ihn die ganze Welt. In Dortmund spricht man nur noch von einem neuen Zeitalter: dem Goalgun-Effekt.
 
-(titel) (https://shop.bvb.de/trikots/auswartstrikot?utm_source=google&utm_medium=cpc&utm_campaign=brand-bvb-trikot&utm_content=exact-bvb-trikots-generisch&utm_cid=auswaertstrikot2526&gad_source=1&gad_campaignid=176254786&gbraid=0AAAAADx5VXacrbssgeuZzbY--JTJCgKdh&gclid=Cj0KCQjw267GBhCSARIsAOjVJ4EOPEJ8bTHrf4-dmd8ZpA05F4O6zOjJtzqwF7hbHZ9fQO8lZHDJgwcaAr1vEALw_wcB)
+(https://shop.bvb.de/trikots/auswartstrikot?utm_source=google&utm_medium=cpc&utm_campaign=brand-bvb-trikot&utm_content=exact-bvb-trikots-generisch&utm_cid=auswaertstrikot2526&gad_source=1&gad_campaignid=176254786&gbraid=0AAAAADx5VXacrbssgeuZzbY--JTJCgKdh&gclid=Cj0KCQjw267GBhCSARIsAOjVJ4EOPEJ8bTHrf4-dmd8ZpA05F4O6zOjJtzqwF7hbHZ9fQO8lZHDJgwcaAr1vEALw_wcB)

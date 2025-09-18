@@ -1,4 +1,5 @@
-##Stärken
+***Stärken***
+
 ---
 Stürmer
 Ultraschnell
@@ -6,6 +7,7 @@ Bullseye
 Maschiene
 
 
-##Schwächen
+###Schwächen
+
 ---
 Verletzungsanfällig
